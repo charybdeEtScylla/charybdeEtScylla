@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @charybdeEtScylla
+- 👀 I’m interested in the maritime world and coding
+- 💞️ I’m looking to collaborate on the ESIG'Programming's projects
+- 📫 How to reach me : Discord and Whatsapp groups
