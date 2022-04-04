@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @charybdeEtScylla
-- 👀 I’m interested in the maritime world and coding
-- 💞️ I’m looking to collaborate on the ESIG'Programming's projects
+- 👀 I’m interested in eating people and chewing them slowly
+- 💞️ I’m looking to collaborate on making programs to vacuum ships full of greeks and get them within my reach
 - 📫 How to reach me : Discord and Whatsapp groups
